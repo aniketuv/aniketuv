@@ -1,5 +1,5 @@
 # 💫 About Me:
-🎒🎒 currently pursuing my Bsc degree in Computer Science
+🎒 currently pursuing my Bsc degree in Computer Science
 
 
 ## 🌐 Socials:
