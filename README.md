@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 👨🏻‍💻 About Me:
 🎒 currently pursuing my Bsc degree in Computer Science
 
 
